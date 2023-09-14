@@ -24,5 +24,5 @@
 🌟 Training and Building Future Leaders
 🎉 Living life with a Playful Spirit
 
-## Lets Team Up! 🤝🚀##
+## Lets Team Up! 🤝🚀
 Feel free to reach out if you have any questions or would like to collaborate on exciting projects! 😄🚀
