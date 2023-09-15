@@ -1,6 +1,6 @@
 # Hi there! I am Jagpal Singh 👋 
 
-🔭 I excel as a Project Manager and Scrum Master with over 20 years of industry experience.  
+🔭 I excel in Project Management and serving as Scrum Master with over 20 years of industry experience.  
 🚀 I specialize in optimizing SQL databases, aiding business growth, and managing projects effectively.  
 🌱 I'm passionate about continuous learning, especially in Project Management, SQL Server, Azure, AI, and ML. 
 
