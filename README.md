@@ -4,7 +4,7 @@
 🚀 I specialize in optimizing SQL databases, aiding business growth, and managing projects effectively.  
 🌱 I'm passionate about continuous learning, especially in Project Management, SQL Server, Azure, AI, and ML. 
 
-CURIOUS TO KNOW MORE ABOUT ME...?
+CURIOUS TO KNOW MORE ABOUT ME...?  
 CLICK HERE 👉  https://github.com/jagpalgithub/Scrum_Master/blob/main/Jagpal%20Singh%20About%20me.pdf
 
 ## Achievements:
